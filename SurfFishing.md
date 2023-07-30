@@ -33,3 +33,19 @@ Sharp Beach (Pacifica)
 - fish was caught along the beach lip (bit in a wave)
 ```
 ---
+
+```
+21 inch Striper
+1 oz bucktail (white/ no feathers/ white bait strip)
+Mussel Rock beach
+- found a good weight, swam the bucktail through the water, bit kind of far out
+- mediuim surf
+
+34 inch Striper
+2-3/8 Super Strike Popper (black eye/bone color)
+- medium retrieve, sharp pump every few cranks
+- fish bit far out, after I timed a nice wave breaking
+
+```
+
+---
