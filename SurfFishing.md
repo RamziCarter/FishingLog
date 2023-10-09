@@ -17,10 +17,9 @@ Rockaway beach
 Rockaway beach
 - first fish bit in the lip
 - second fish bit in a trouph, I dragged the bucktail parallel to the shore
-
-
-![First Surf Striper](Fish7.jpg)
 ```
+
+![Second and Third Surf Striper](Fish6.jpg)
 ---
 
 
