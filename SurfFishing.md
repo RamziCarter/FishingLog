@@ -64,7 +64,7 @@ Mussel Rock beach
 20 inch Striper
 1 oz bucktail (white/ no feathers/ white bait strip)
 Mussel Rock beach
-- found a good weight, swam the bucktail through the water, bit kind of far out
+- found a good weight, swam the bucktail through the water
 - mediuim surf
 ```
 ![First Surf Striper](Fish1.jpg)
