@@ -49,5 +49,5 @@ Mussel Rock beach
 ```
 
 ![Fifth Surf Striper](Fish2.jpg)
-![Sixth Surf Striper](Fish1.jpg)
+![Sixth Surf Striper](Fish4.jpg)
 ---
