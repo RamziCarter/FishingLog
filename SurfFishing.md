@@ -48,6 +48,6 @@ Mussel Rock beach
 - fish bit far out, after I timed a nice wave breaking
 ```
 
-![Fifth Surf Striper](Fish3.jpg)
+![Fifth Surf Striper](Fish2.jpg)
 ![Sixth Surf Striper](Fish4.jpg)
 ---
