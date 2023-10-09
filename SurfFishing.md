@@ -6,6 +6,7 @@
 3/4 oz bucktail (green hair/ brown head/ orange feathers / white bait strip)
 Rockaway beach
 ```
+!(First Surf Striper)[https://github.com/RamziCarter/FishingLog/blob/926b75eefc81985754b9ff3d3bd235582ee3c545/Fish7.jpg]
 
 
 ---
