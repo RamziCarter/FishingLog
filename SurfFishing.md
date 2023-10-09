@@ -32,7 +32,7 @@ Sharp Beach (Pacifica)
 - fish was caught along the beach lip (bit in a wave)
 ```
 
-![Fourth Surf Striper](Fish6.jpg)
+![Fourth Surf Striper](Fish5.jpg)
 ---
 
 ```
