@@ -53,19 +53,19 @@ Mussel Rock beach
 ---
 
 ```
-21 inch Striper
-1 oz bucktail (white/ no feathers/ white bait strip)
+19 inch Striper
+1 oz bucktail (chartruese and white/ white feathers/ white bait strip)
 Mussel Rock beach
-- found a good weight, swam the bucktail through the water, bit kind of far out
-- mediuim surf
+- found a good weight, swam the bucktail through the water, calm surf
 ```
 ![Seventh Surf Striper](Fish4.jpg)
 ---
 ```
-21 inch Striper
-1 oz bucktail (chartruese and white/ white feathers/ white bait strip)
+20 inch Striper
+1 oz bucktail (white/ no feathers/ white bait strip)
 Mussel Rock beach
-- found a good weight, swam the bucktail through the water, calm surf
+- found a good weight, swam the bucktail through the water, bit kind of far out
+- mediuim surf
 ```
 ![First Surf Striper](Fish1.jpg)
 ---
