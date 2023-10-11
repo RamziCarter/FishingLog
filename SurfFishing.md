@@ -1,5 +1,20 @@
-## Log
+## Fishing Log
+The inspiration behind my fishing log largely comes from John Skinner and his book: "Fishing the bucktail", which covers fishing applications from surf, kayak, boat and bays. 
 
+Gear
+---
+Rod: 
+- 9 ft medium heavy St.Croix Mojo Surf Rod
+Reel:
+- Van Stall Vr 125
+Lures: 
+- 3/4 - 2 oz fixed hook bucktails topped with a white 5-1/2 inch bait strip by fat cow jig strips
+- Super Strike Little neck popper 2-3/4 bone color (black eye)
+- pencil popper
+Equiptment:
+- fishing bag with leader wallet
+- Headlight 
+---
 
 ```
 30 inch striper
