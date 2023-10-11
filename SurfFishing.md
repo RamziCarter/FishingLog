@@ -1,7 +1,7 @@
 ## Fishing Log
 The inspiration behind my fishing log largely comes from John Skinner and his book: "Fishing the bucktail", which covers fishing applications from surf, kayak, boat and bays. 
 
-Gear
+#### Gear
 ---
 Rod: 
 - 9 ft medium heavy St.Croix Mojo Surf Rod
