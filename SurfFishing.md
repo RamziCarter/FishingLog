@@ -90,3 +90,16 @@ Mussel Rock beach
 ```
 ![First Surf Striper](Fish1.jpg)
 ---
+
+> For the 2024 season I picked up a few lures and will try to improve my catch with certain tactics
+- using bucktails for searching out fish will be my main tactic for looking for striped bass
+  - there is a limitation to using bucktails due to the lack of casting distance.
+  - will need to pick up some black and red bucktails 3/4 oz, 1 oz, 1-1/2 oz, 2oz
+  - more bait strip trailers
+- using poppers or some sort of topwater will improve my catch of larger stripers I am sure
+  - the only extremely large striper I caught in 2023 from the surf was on a top water bait
+- I have picked up 4 needle fish plugs and 2 little neck swimmers
+  terminal tackle is not an issue and the gear seems to also be okay
+- may have to find a pair of wading boots or crocks to wear
+
+---
