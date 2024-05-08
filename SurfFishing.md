@@ -40,7 +40,7 @@ Rockaway beach
 - second fish bit in a trouph, I dragged the bucktail parallel to the shore
 ```
 
-![Second and Third Surf Striper](Fish6.jpg)
+![Second and Third Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish6.jpg)
 ---
 
 
@@ -53,7 +53,7 @@ Sharp Beach (Pacifica)
 - fish was caught along the beach lip (bit in a wave)
 ```
 
-![Fourth Surf Striper](Fish5.jpg)
+![Fourth Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish5.jpg)
 ---
 
 ```
@@ -69,8 +69,8 @@ Mussel Rock beach
 - fish bit far out, after I timed a nice wave breaking
 ```
 
-![Fifth Surf Striper](Fish2.jpg)
-![Sixth Surf Striper](Fish3.jpg)
+![Fifth Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish2.jpg)
+![Sixth Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish3.jpg)
 ---
 
 ```
@@ -79,7 +79,7 @@ Mussel Rock beach
 Mussel Rock beach
 - found a good weight, swam the bucktail through the water, calm surf
 ```
-![Seventh Surf Striper](Fish4.jpg)
+![Seventh Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish4.jpg)
 ---
 ```
 20 inch Striper
@@ -88,7 +88,7 @@ Mussel Rock beach
 - found a good weight, swam the bucktail through the water
 - mediuim surf
 ```
-![First Surf Striper](Fish1.jpg)
+![First Surf Striper](https://github.com/RamziCarter/FishingLog/blob/5fd16c25c290fbddded9f85dd57f401b390f6c00/Images/Fish1.jpg)
 ---
 
 > For the 2024 season I picked up a few lures and will try to improve my catch with certain tactics
