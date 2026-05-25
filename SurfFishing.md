@@ -103,3 +103,15 @@ Mussel Rock beach
 - may have to find a pair of wading boots or crocks to wear
 
 ---
+
+## 2026 Season
+---
+#### Gear
+Rod:
+- 9 ft medium heavy St.Croix Mojo Surf Rod (Same as previous years)
+
+Reel:
+- sold vr125 van stall, the reel was too small for the surf. A bunch of extra cranks were needed on initial cast alone to pick up the line.
+- no need reel has been acquired. Will update when new gear is purchased
+Lures:
+- bucktails need to be purchased and tins, the main focus is to fish on days with low water structure and waves that are not close by
